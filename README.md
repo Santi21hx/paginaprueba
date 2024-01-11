@@ -1,0 +1,1 @@
+<img src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fminecraft.novaskin.me%2Fsearch%3Fq%3Daldeano%2520de&psig=AOvVaw3OUgB6esd6nfGboU9I3_oX&ust=1705045016299000&source=images&cd=vfe&opi=89978449&ved=0CBIQjRxqFwoTCKi9jObp1IMDFQAAAAAdAAAAABAD" alt="Aldeano">
